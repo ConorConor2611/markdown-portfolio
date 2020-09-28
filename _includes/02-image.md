@@ -1,1 +1,1 @@
-Replace this with an image, like your photo. Ensure you include some alt-text.
+![blind people don't exist](https://twitter.com/TLyudacris/status/1310392044364283904/photo/1)
